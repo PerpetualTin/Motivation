@@ -6,4 +6,4 @@ The Digital Literacy Program at ReDI School presents an excellent opportunity to
 My motivation for this course stems from a desire to stay relevant in a rapidly evolving digital landscape and to gain the skills necessary to contribute more effectively to sustainable development initiatives.
 
  I have a solid foundation in using computers for various tasks, including project management and communication. I am proficient in the Microsoft Office Suite (Word, Excel, PowerPoint), Google Sheets, and digital communication platforms like Zoom and Mailchimp.
-Additionally, I have experience with basic website management and content updates. However, I aim to improve my skills further in areas like coding, data management, and digital tools for more efficient project execution and analysis, which is why I am eager to join the ReDI School’s Digi
+Additionally, I have experience with basic website management and content updates. However, I aim to improve my skills further in areas like coding, data management, and digital tools for more efficient project execution and analysis, which is why I am eager to join the ReDI School’s Digital Literacy Program.
